@@ -1,0 +1,5 @@
+- Holii, soy Psyconautica !
+- Pronuns: He/Him
+- 14y
+- dni shippers n multifandoms.
+- I love owls n cats 🦉
